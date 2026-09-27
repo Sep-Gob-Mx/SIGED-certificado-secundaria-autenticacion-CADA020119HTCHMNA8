@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-CADA020119HTCHMNA8
+CADA020119HTCHMNA8
